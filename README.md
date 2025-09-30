@@ -1,1 +1,0 @@
-# VXL_VDK_LAB_1
